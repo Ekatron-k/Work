@@ -1,3 +1,3 @@
 # Work 
-# Work 1? Administrirovanye Informationnyh System? #
+# Work 1? Administration of Information Systems #
 # Shestakova Ekaterina #
